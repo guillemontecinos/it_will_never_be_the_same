@@ -20,10 +20,10 @@ The piece was originally performed between November 10th - 12th at SFPC during t
 ![](https://github.com/guillemontecinos/it_will_never_be_the_same/blob/master/documentation/8W0B2744.jpg)
 [*Picture by Sofía Luisa*](http://sofialuisa.com/)
 
-![](https://github.com/guillemontecinos/projects/blob/master/it_will_never_be_the_same/documentation/8W0B2775.jpg)
+![](https://github.com/guillemontecinos/it_will_never_be_the_same/blob/master/documentation/8W0B2775.jpg)
 [*Picture by Sofía Luisa*](http://sofialuisa.com/)
 
-![](https://github.com/guillemontecinos/projects/blob/master/it_will_never_be_the_same/documentation/it_will_never_1.jpg)
+![](https://github.com/guillemontecinos/it_will_never_be_the_same/blob/master/documentation/it_will_never_1.jpg)
 [*Picture by Niklas May*](http://www.niklas-may.de/)
 
 ## The poems
